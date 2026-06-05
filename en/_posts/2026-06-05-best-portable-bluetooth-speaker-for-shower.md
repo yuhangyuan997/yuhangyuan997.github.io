@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "The Best Portable Bluetooth Speaker for the Shower: Real-World Test of 4 Waterproof Speakers"
+title: "【EN】The Best Portable Bluetooth Speaker for the Shower: Real-World Test of 4 Waterproof Speakers"
 ---
 
 Let's be honest — your shower playlist deserves better than a phone propped on a shampoo bottle, muffled by steam and skipping tracks every time you turn the faucet. A proper waterproof Bluetooth speaker changes the bathroom game entirely. But not every "waterproof" speaker actually survives daily steam, hot water splashes, and the occasional drop onto tile.
